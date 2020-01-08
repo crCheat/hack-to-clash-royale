@@ -1,12 +1,12 @@
 Hack for Clash Royale - Free Gems (Android, iOS) 2020
 
 How to use Hack to Clash Royale?
-Click on “Open Clash Royale Hack” or click here.
-Enter your username.
-Select your type of device.
-Choose the number of gems and gold.
-Mark “Use proxy” and “Anti-ban”.
-Click on “Generate” button.
+- Click on https://gaminghouse.info/hack-to-clash-royale-generator-gems-free-gems/ to open Hack to Clash Royale.
+- Enter your username.
+- Select your type of device.
+- Choose the number of gems and gold.
+- Mark “Use proxy” and “Anti-ban”.
+- Click on “Generate” button.
 
 Is Clash Royale a pay-to-win game? Technically, that’s what it is. But in the article, I derive formulas according to which the personal abilities of a player can at least slightly block the power of a wallet.
 It turns out that the resource limiting the development of the player and improving the cards is gold, and not the number of copies of any card at all. Chests contain only 60% of the gold required for the cards they contain. Therefore, choose the cards you want to improve with great care.
